@@ -1,1 +1,0 @@
-MAPS CREATOR = By YIGIT (Eq1NoX)..:)
